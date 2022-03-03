@@ -8,4 +8,4 @@
 
 💞️ I’m looking to collaborate on projects with insights for business
 
-📫 How to reach me carvalhogustavo@hotmail.com.br
+📫 carvalhogustavo@hotmail.com.br
